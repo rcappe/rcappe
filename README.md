@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-How I am:
+Who I am:
 - ⚡ Today I am partner in Elfo srl and I play the role of CINO in this fantastic and dynamic company with international customers.
 - 🔭 I built my experience on the desire to discover starting from my first vic-20.
 - 🌱 The role requires me to be always up to date, in a frenetic technological world.
